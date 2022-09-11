@@ -1,6 +1,6 @@
 PRIVACY NOTICE
 
-Last updated August 12, 2021
+Last updated September 10, 2022
 
 Thank you for choosing to be part of our community at Asap Softwares Developers ("Company," "we," "us," or "our"). We are committed to protecting your personal information and your right to privacy. If you have any questions or concerns about this privacy notice or our practices with regard to your personal information, please contact us at support@asapsoftwares.com.
 
